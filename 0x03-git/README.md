@@ -1,1 +1,2 @@
-Let me tell you about my tutor, his name is Mr Samuel. 
+Let me tell you about my tutor, his name is Mr Samuel.
+Alx made simple. 
